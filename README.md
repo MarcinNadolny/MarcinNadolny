@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MarcinNadolny
+- 👀 I’m interested in aspects of running a business and optimization
+- 🌱 I’m currently learning ERP Comarch XL and DMS (Document Management System)
+- 💞️ I’m looking to collaborate on learning and work as an ERP specialist or Project Manager
+- 📫 How to reach me: you can contact me by phone: +48 512 091 905
